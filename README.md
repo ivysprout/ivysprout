@@ -1,4 +1,4 @@
-### 🍰 info for ponytown viewers . . .
+## 🍰 info for ponytown viewers . . .
 * call me ivy, basil, or nepeta!
 
 _🧶 interaction is welcome, however . . ._
