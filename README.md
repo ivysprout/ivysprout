@@ -1,5 +1,5 @@
 ## 🍰 info for ponytown viewers . . .
-* call me ivy, basil, or nepeta!
+### * _call me ivy, basil, or nepeta!_
 
 _🧶 interaction is welcome, however . . ._
 * i am severely anxious, please be gentle!
