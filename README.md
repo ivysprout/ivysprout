@@ -14,7 +14,7 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tinsy strawberry R](https://github.com/ivysprout/ivysprout/assets/136771213/f6fe8b56-5125-4636-9cd1-c6d5b661d9fe) - _ask to touch or add me_ ㅤㅤㅤ![tinsy strawberry L](https://github.com/ivysprout/ivysprout/assets/136771213/d2fff769-fa97-44db-a902-5438b845ed10) - _cover, touch, follow w/o consent_
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tinsy strawberry L](https://github.com/ivysprout/ivysprout/assets/136771213/d2fff769-fa97-44db-a902-5438b845ed10) - _ask to join me or hang out_  ㅤㅤ![tinsy strawberry R](https://github.com/ivysprout/ivysprout/assets/136771213/f6fe8b56-5125-4636-9cd1-c6d5b661d9fe) - _join what i'm doing uninvited_
- # ![pastel rainbow](https://github.com/ivysprout/ivysprout/assets/136771213/7699fd35-7a0f-4d35-aaac-593c6772594f) THANK YOU *!!* ♡ for taking the time to <ins>_read and respect</ins>_ ! ♡ ![pastel rainbow](https://github.com/ivysprout/ivysprout/assets/136771213/7699fd35-7a0f-4d35-aaac-593c6772594f)
+ # ![pastel rainbow](https://github.com/ivysprout/ivysprout/assets/136771213/7699fd35-7a0f-4d35-aaac-593c6772594f) THANK YOU *!!* ♡ for taking the time to <ins>_read & respect</ins>_ ! ♡ ![pastel rainbow](https://github.com/ivysprout/ivysprout/assets/136771213/7699fd35-7a0f-4d35-aaac-593c6772594f)
 ![glitter strawberry lace](https://github.com/ivysprout/ivysprout/assets/136771213/999bef2d-bad4-4a7f-bf4c-00d7ed995078)
 ## ㅤㅤㅤㅤㅤㅤㅤ *︶︶︶ ♡ ♡ ♡ HAVE A GREAT DAY OR NIGHT! ♡ ♡ ♡︶︶︶*
 
