@@ -1,5 +1,5 @@
 ## 🍰 INFO FOR PONYTOWN VIEWERS . . .
-### * <ins>hello</ins>! call me <ins>_ivy, basil, or nepeta!_</ins>
+### * <ins>hello</ins>! please call me <ins>_ivy, basil, or nepeta!_</ins>
 
 _🧶 interaction is welcome, however . . ._
 * i am severely anxious, please be gentle!
