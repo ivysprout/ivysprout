@@ -1,5 +1,9 @@
-## Hi there 👋
+### info for ponytown viewers!
+* call me ivy, basil, or nepeta!
 
+_interaction is welcome, however . . ._
+* i am severely anxious, please be gentle!
+* personal space is preferred & appreciated!
 <!--
 **ivysprout/ivysprout** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
